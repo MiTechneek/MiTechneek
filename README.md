@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MiTechneeky
+- 👋 Hi, I’m @MiTechneek
 - 👀 I’m interested in ... Anything DIY and Electrical
 - 🌱 I’m currently learning ... All that I can!
 - 💞️ I’m looking to collaborate on ...
